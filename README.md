@@ -5,4 +5,5 @@ I am very grateful to my fellow peers for their support in my journey.
 I am very very very grateful that I was able to accomplish my work and survived the computer crash! 
 Today, I am so grateful to SEE my efforts return in HOW I THINK about building. 
 I am grateful for my peers. A valuable feedbcak is time invested, not lost. 
-I am very grateful to our coach Afiya, her energy, enthusiasm and investment keeps us motivated! 
+I am very grateful to our coach Afiya, her energy, enthusiasm and investment keeps us motivated
+I am grateful to Pursuit for giving me the opportunity to reinvent my career. 
