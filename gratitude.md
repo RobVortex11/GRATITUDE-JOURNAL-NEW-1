@@ -1,1 +1,1 @@
-I am grateful to my L2 and L3 peers for inspiring me to stay put, believe in me and know that all the technical challenges will make sense as we wor through them
+I am grateful to my L2 and L3 peers for inspiring me to stay put, believe in me and know that all the technical challenges will make sense as we work through them
