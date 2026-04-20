@@ -12,3 +12,4 @@ I am grateful to those who have helped me improve by genuinely lending a helping
 I am very grateful to understanding that the best ideas are rarely an easy catch, sometimes you have to dig deeper in order to find the goldne nugget. 
 I am very grateful to the Pursuit organization for allowing me to grow professionally, personally and helping me reinvent myself. Thank you! 
 I am grateful to my family and friends for the support. I've decided to sharpen my skills and they are expereincing the transformation. I am grateful! 
+I am grateful to my peer's feedback, they genuily make me grow. 
