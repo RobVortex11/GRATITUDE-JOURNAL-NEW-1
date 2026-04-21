@@ -13,3 +13,4 @@ I am very grateful to understanding that the best ideas are rarely an easy catch
 I am very grateful to the Pursuit organization for allowing me to grow professionally, personally and helping me reinvent myself. Thank you! 
 I am grateful to my family and friends for the support. I've decided to sharpen my skills and they are expereincing the transformation. I am grateful! 
 I am grateful to my peer's feedback, they genuily make me grow. 
+I am grateful to everyone at Pursuit. There's a solid and strong community here: people share, prepare, cook food for us! Help us when we are stock and make suggestions when we have questions. I am very grateful to all of them! 
