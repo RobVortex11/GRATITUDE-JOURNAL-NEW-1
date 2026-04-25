@@ -16,3 +16,4 @@ I am grateful to my peer's feedback, they genuily make me grow.
 I am grateful to everyone at Pursuit. There's a solid and strong community here: people share, prepare, cook food for us! Help us when we are stock and make suggestions when we have questions. I am very grateful to all of them! 
 I am happy to know that my growth since the program has started is noticeable in my circle of freinds and is making some changes in the way I think about building. 
 I love learning! Thanks to all of those who made a contribution to my growth, because of you, I am a better person! 
+Sometimes I wonder, what if I hadn't come to Pursuit? how different would my skill set be? I am thankful 
