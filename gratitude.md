@@ -17,3 +17,4 @@ I am grateful to everyone at Pursuit. There's a solid and strong community here:
 I am happy to know that my growth since the program has started is noticeable in my circle of freinds and is making some changes in the way I think about building. 
 I love learning! Thanks to all of those who made a contribution to my growth, because of you, I am a better person! 
 Sometimes I wonder, what if I hadn't come to Pursuit? how different would my skill set be? I am thankful 
+I am happy to know and feel confident about my final build. I had been struggling with that for a couple of days. I feel good and confident that it was the best decision. 
