@@ -18,3 +18,4 @@ I am happy to know that my growth since the program has started is noticeable in
 I love learning! Thanks to all of those who made a contribution to my growth, because of you, I am a better person! 
 Sometimes I wonder, what if I hadn't come to Pursuit? how different would my skill set be? I am thankful 
 I am happy to know and feel confident about my final build. I had been struggling with that for a couple of days. I feel good and confident that it was the best decision. 
+I am grateful to everyone who brings snacks and food for all to enjoy. That's a real caring community. Thank you! 
