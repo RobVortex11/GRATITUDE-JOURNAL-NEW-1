@@ -22,3 +22,4 @@ I am grateful to everyone who brings snacks and food for all to enjoy. That's a 
 I am grateful to Dave Yang for the talk. 
 I remember when I started, I doubted myself due to techincal challenges. Today, I am grateful that I decided to continue and pushing through had an amazing reaward: I no longer feel the same. 
 I remember attending the workshop on my birthday, Feb 11, and saying: "best birthday gift, best sign that THIS IS the right direction". I was right all along... and THAT feels AMAZING! 
+This is it! racing to the finish line! Can you believe where you were and how much you have grown in the past two months? I am grateful to all those who have helped me push my career further. Thank you! 
