@@ -23,3 +23,5 @@ I am grateful to Dave Yang for the talk.
 I remember when I started, I doubted myself due to techincal challenges. Today, I am grateful that I decided to continue and pushing through had an amazing reaward: I no longer feel the same. 
 I remember attending the workshop on my birthday, Feb 11, and saying: "best birthday gift, best sign that THIS IS the right direction". I was right all along... and THAT feels AMAZING! 
 This is it! racing to the finish line! Can you believe where you were and how much you have grown in the past two months? I am grateful to all those who have helped me push my career further. Thank you! 
+ The shortest distance between point A and point B might seem obvious: a straight line. You could go that route and get to the finish line faster, but you have missed out on the journey. Eventhough, a semi circle is a longer distance between two points, it includes all the bells an whistles. It takes longer, but you gain the experience and tools needed to be better prepared when you reach the finish line. Final entry — Level 1 complete 🎉
+ 
